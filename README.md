@@ -16,4 +16,4 @@ But! BUT! if you want your OC drawn -- you're in the right place.
 
 ⬩➤ I will draw humanoid characters, furries, I can give a shot at drawing ponies as well, suggestive artwork. It's just better to ask right away and we'll see what I can do about the request :D
 
-✶ If you're interested message me on Discord (@/kepch), Telegram (@/kekpch) or Tumblr (@/therussiancourier)
+✶ If you're interested message me on Discord (@/kepch), Telegram (@/kekpch) or Tumblr (@/therussiancourier). You can also whisper me on Pony Town!
