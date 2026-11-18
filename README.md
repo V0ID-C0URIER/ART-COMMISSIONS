@@ -14,6 +14,6 @@ But! BUT! if you want your OC drawn -- you're in the right place.
 
 <img width="2048" height="982" alt="изображение" src="https://github.com/user-attachments/assets/504f8c1c-1389-417e-a0f4-b750b45dcd32" />
 
-⬩➤ I will draw humanoid characters, furries, suggestive artwork. It's just better to ask right away and we'll see what I can do about the request :D
+⬩➤ I will draw humanoid characters, furries, I can give a shot at drawing ponies as well, suggestive artwork. It's just better to ask right away and we'll see what I can do about the request :D
 
 ✶ If you're interested message me on Discord (@/kepch), Telegram (@/kekpch) or Tumblr (@/therussiancourier)
